@@ -1,2 +1,1 @@
-# zyhgov-iegc5.github.io
-IEGC·创新创业指导委员会官网5.0版本重制版，正式发行可用版网址提取搜索，指定使用bing搜索！
+大数据技术2203创新创业指定网址：https://zyhgov-iegc5-3gdx78p260d3b261-1314221350.tcloudbaseapp.com/ 点击或复制到浏览器访问。
